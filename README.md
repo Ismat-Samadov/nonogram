@@ -1,1 +1,0 @@
-# birja_com
